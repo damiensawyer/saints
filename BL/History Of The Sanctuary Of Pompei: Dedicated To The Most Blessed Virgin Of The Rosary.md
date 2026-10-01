@@ -84,7 +84,7 @@ That first History comprised all the facts and miracles that had taken place in 
 
 The first edition of two thousand copies having been exhausted in less time than I could have supposed, that is within the space of twelve months, I was obliged in 1880 to hastily compile a second edition, which I committed to the then existing printinghouse of the Fibreno in Naples; and in order to satisfy the constantly increasing demands, within six days a thousand other copies had already been printed. This second edition I enlarged somewhat by the addition of a few pages.
 
-After the lapse of four months of the same year 1880, through the typography of Andrea and Salvatore Festa, we issued a third edition oj three thousand copies, more voluminous than the preceding, that is to say consisting of 144 pages, as it contained the extraordinary events of the year 1879.
+After the lapse of four months of the same year 1880, through the typography of Andrea and Salvatore Festa, we issued a third edition of three thousand copies, more voluminous than the preceding, that is to say consisting of 144 pages, as it contained the extraordinary events of the year 1879.
 
 But this third edition also was soon exhausted, and so in the month of May of the year 1881 we published a fourth one of four thousand copies, also through the Printing House of the Firm of Festa, and this we enriched with still other notices of the extraordinary events of the year 1880, thus making a volume of 224 pages.
 
@@ -110,7 +110,7 @@ For all these various reasons I heartily hope that this my humble work may turn 
 
 ## Introduction
 
-from Heaven not one, but innumerable benefits, and not least among these, that of a life preserved, through the intercession of our great Mother, whom we venerate in Pompei by her title of the Rosary, I could not fail to realize my great debt of gratitude, and I felt my heart burn with an immense desire to love and praise Mary, and lead others also to love and praise her. From the very moment that this loving Mother showed herself so merciful unto me, it became my firm purpose to consecrate my life to her service and to the propagation of her worship, and especially of the divine Rosary, so acceptable unto Her: hence arose my intention of spending yearly five hundred francs of my own to raise a simple altar on this abandoned plain, around which to gather the simple country folk in order to instruct them in the recital of the Rosary.
+Having received from Heaven not one, but innumerable benefits, and not least among these, that of a life preserved, through the intercession of our great Mother, whom we venerate in Pompei by her title of the Rosary, I could not fail to realize my great debt of gratitude, and I felt my heart burn with an immense desire to love and praise Mary, and lead others also to love and praise her. From the very moment that this loving Mother showed herself so merciful unto me, it became my firm purpose to consecrate my life to her service and to the propagation of her worship, and especially of the divine Rosary, so acceptable unto Her: hence arose my intention of spending yearly five hundred francs of my own to raise a simple altar on this abandoned plain, around which to gather the simple country folk in order to instruct them in the recital of the Rosary.
 
 The events have surpassed my intention. It was only when I beheld the blessing of God descending so abundantly on my humble efforts, that I first planned to raise a Throne to Our Lady of such beauty and religious attractiveness, as to draw the faithful here to venerate Her on this spot.
 
@@ -210,7 +210,7 @@ All this great movement of life and art, of civilization and of religion, did no
 
 And here the traveller will want to know how so rapid a change, that must of a necessity seem an exageration to the distant and appears as a dream even to those who are present, came to pass.
 
-To satisfy this just desire I must however begin far back, and reveal the earliest origin of this great phenomenon. But prior to beginning these researches, it appears to me wise and reasonable to premit a few truths, that wiJi place my narrative in a more evident light.
+To satisfy this just desire I must however begin far back, and reveal the earliest origin of this great phenomenon. But prior to beginning these researches, it appears to me wise and reasonable to premise a few truths, that will place my narrative in a more evident light.
 
 1. The work of Pompei is the work of God! The Virgin Mary is directing it to His glory, and the means of promulgation, of which She avails Herself, are miracles!
 
@@ -414,7 +414,7 @@ But the real keynote to the Valley is given us by liistory and by the church the
 
 It was these reasonable motives that induced Don Giovanni Cirillo, the first Parish Priest of this modern Valle, (a man well posted as to the first origin of his Parish, and who had read important documents and ancient inscriptions), to have a seal, to be placed on all public acts, papers, and parochial documents, engraved with the inscription: — Parish of the Most Holy Saviour in the ancient Land of Valle a Pompeia — as we have already stated. And the Valley is full of papers bearing that legend; all the present citizens have some of these documents, either as attestations of birth, or of baptism, or as certificates of marriage or of death, and the like.
 
-To-day, alter two centuries have elapsed since the destruction of the town and of the Parish, both town and Parish come to life again. The Parish, that was reinstated as far back as 1840, assumed, together with its ancient title of Parish of the Most Holy Saviour in Valle, also a part of its territory, which was divided among the three communes of two provinces. The township of Valle, whose resurrection began on the eighth day of May 1887, on the day of the Coronation of the Virgin of the Rosary, with its worldwide known Sanctuary, with its trade -schools and charitable institutions, with its Infant andOrphanAsylums, with its Post and Telegraph Offices, with its schools and workingmen's homes, with its own station, bearing the name of Valle di Pompei, shall it not also in this historic spot resume its ancient denomination?
+To-day, after two centuries have elapsed since the destruction of the town and of the Parish, both town and Parish come to life again. The Parish, that was reinstated as far back as 1840, assumed, together with its ancient title of Parish of the Most Holy Saviour in Valle, also a part of its territory, which was divided among the three communes of two provinces. The township of Valle, whose resurrection began on the eighth day of May 1887, on the day of the Coronation of the Virgin of the Rosary, with its worldwide known Sanctuary, with its trade -schools and charitable institutions, with its Infant and Orphan Asylums, with its Post and Telegraph Offices, with its schools and workingmen's homes, with its own station, bearing the name of Valle di Pompei, shall it not also in this historic spot resume its ancient denomination?
 
 This resurrected Parish, this newborn Commune, how should we have called it the first time that we wrote the History of this Sanctuary? How would the reader have called it?
 
@@ -748,7 +748,7 @@ And the October of 1874 having duly been ushered in I prepared another large lot
 
 It was customary in that part of the country, when an invitation was to be made to the people at large, to send out a crier, and this latter was always some woman, known for her strong and stentorian voice.
 
-So eight days before the time set, I sent out his woman to proclaim throughout that part t4l he country the coming feast of the Rosary ahead three whole days I myself went about from farm-house to farm-house asking for any offering of corn or cotton, to celebrate the festival of the Virgin of the Rosary. House by house I entered and invited their occupants to come to the Parish, and to enjoy in the middle of the provincial road the great spectacles offered for their amusement, not to mention a great lottery.
+So eight days before the time set, I sent out this woman to proclaim throughout that part of the country the coming feast of the Rosary, and for three whole days I myself went about from farm-house to farm-house asking for any offering of corn or cotton, to celebrate the festival of the Virgin of the Rosary. House by house I entered and invited their occupants to come to the Parish, and to enjoy in the middle of the provincial road the great spectacles offered for their amusement, not to mention a great lottery.
 
 From the sale of the corn and cotton I intended to draw two advantages; the first was to increase the sum that I had decided to spend of my own money; and my second and most important object, in which I succeeded wonderfully, was to thus sollicit these country people to come to the celebration as being personally interested in it. The festival succeeded quite brilliantly so that the inhabitants immediately understood that I had paid nearly all the expenses from out my own pocket.
 
@@ -788,7 +788,7 @@ But my designs were for the time crossed by the envy of him
 
 ## Chapter V: The Hour of Mercy
 
-Some time elapsed, during which I never abandoned my plans and my firm purpose to make another attempt towards their actuation, when I one day in the name of the Countess de Fusco turned to two pious ladies, RafTaela Piria and Catherine Yolpicelli, who had in the meantime raised a little marble altar in the tumble-down parish church after demolishing the old one made of worm-eaten boards. At the same time I was encouraged in my ideas by the Rev. Louis Caruso, then vicesecretary of the clergy of Naples and to-day a canon in that city’s cathedral; he, being a friend of the Bishop of Castellammare di Stabia, who was then Monsignor Pedagna, had recourse to him for the choice of some holy priest to be sent on a missionary visit to Pompei. And yet nevertheless three long years elapsed before three priests conld be obtained to come on a mission to this desolate spot; because, as I have already stated, being a layman and a stranger in these parts, I not only was ignorant of the manner of sollicking a mission, not knowing to whom to address myself, especially as I desired it for a private devotion of my own, but I even ignored the name of the Bishop of Nola and of all the Bishops of the surrounding Dioceses.
+Some time elapsed, during which I never abandoned my plans and my firm purpose to make another attempt towards their actuation, when I one day in the name of the Countess de Fusco turned to two pious ladies, Raffaela Piria and Catherine Volpicelli, who had in the meantime raised a little marble altar in the tumble-down parish church after demolishing the old one made of worm-eaten boards. At the same time I was encouraged in my ideas by the Rev. Louis Caruso, then vicesecretary of the clergy of Naples and to-day a canon in that city’s cathedral; he, being a friend of the Bishop of Castellammare di Stabia, who was then Monsignor Pedagna, had recourse to him for the choice of some holy priest to be sent on a missionary visit to Pompei. And yet nevertheless three long years elapsed before three priests could be obtained to come on a mission to this desolate spot; because, as I have already stated, being a layman and a stranger in these parts, I not only was ignorant of the manner of soliciting a mission, not knowing to whom to address myself, especially as I desired it for a private devotion of my own, but I even ignored the name of the Bishop of Nola and of all the Bishops of the surrounding Dioceses.
 
 But when the day for the execution of God’ s purposes arrives, there exists no obstacle that can offer any opposition to the divine will.
 
@@ -1182,7 +1182,7 @@ The heavenly Virgin deigned to prove to me by facts, that She showered Her bless
 
 And even if this Image were removed the wonders of the Lord would still be the same.
 
-Among the favors obtained while the second picture of Saint Catherine and the Virgin of the Rosary was in veneration it will suffice for me to recall one, which the reader already finds published and documented in the pamphlet, Novena to the Most Blessed Virgin of the Rosary of PoMPEi,and also in the 3 rd Year, page 34 of the monthly publication: The Rosary and the New Pompei. I mean the blessing granted to myself in person, when on bringing this picture of the Nuptials of Saint Catherine into my room, the blessed Virgin restored me to life. This took place on the evening of the 18 th of August 1879.
+Among the favors obtained while the second picture of Saint Catherine and the Virgin of the Rosary was in veneration it will suffice for me to recall one, which the reader already finds published and documented in the pamphlet, Novena to the Most Blessed Virgin of the Rosary of Pompei, and also in the 3 rd Year, page 34 of the monthly publication: The Rosary and the New Pompei. I mean the blessing granted to myself in person, when on bringing this picture of the Nuptials of Saint Catherine into my room, the blessed Virgin restored me to life. This took place on the evening of the 18 th of August 1879.
 
 Whosoever should desire to-day to see this second picture will find it at the extreme end of the first dormitory of the little orphangirls. I wished that the Saint of the Benincasa family, the admirable teacher of all virtues who obtained for me from Mary the grace of my temporal life, should be a safe and sure guide to Heaven to all these poor orphans gathered together here one by one and entrusted to Her.
 
@@ -1308,7 +1308,7 @@ All these considerations while on the onehand they shed a ray of comfort on our 
 
 But how enter those homes where only titled people enter, or titled relatives, or titled strangers, introduced by other titled persons?
 
-It is true we already had among our subscribers the Ladies Fonton, the noble and pious Duchess of Casamassima, the Duchess of Messanella, Lady Frances De Domenicis, the friend of Mrs. Irbicella, the Duchess of Montagnareale, Miss RafTaela Piria,*the Duchess of Capracotta, and others belonging to the Pious Union of Catherine Volpicelli: but then the aristocracy of Naples is so very numerous!
+It is true we already had among our subscribers the Ladies Fonton, the noble and pious Duchess of Casamassima, the Duchess of Messanella, Lady Frances De Domenicis, the friend of Mrs. Irbicella, the Duchess of Montagnareale, Miss Raffaela Piria, the Duchess of Capracotta, and others belonging to the Pious Union of Catherine Volpicelli: but then the aristocracy of Naples is so very numerous!
 
 Nevertheless strengthened by that inner force which proceeds from the faith and trust in the supernatural we began to make the rounds of the streets of Naples in order to find subscribers for a cent a month to take part in a work which Heaven already with open miracles showed to appreciate.
 
@@ -1588,13 +1588,13 @@ The two ladies began their ascent, but on no door could they find the name Vasta
 
 At such an unexpected announcement the Countess and Miss Freda were about to retrace their steps. It was too evident that they would have been considered most indiscreet and annoying had they tried to speak of the plans of some future work to a mother weeping over her dying daughter
 
-Fortunately at that very moment a young "miss came out. Her face was flushed and wet with tears. She was another daughter of Madam Vastarella, by name Annina.
+Fortunately at that very moment a young miss came out. Her face was flushed and wet with tears. She was another daughter of Madam Vastarella, by name Annina.
 
-When she heard the name of the Countess r which was well known to her as that of a promoter of the Heart of Jesus, thinking that the two ladies had come for the purpose of finding associates to the Confraternity of the Sacred Heart, she invited them to enter, as it seemed to her that they had been sent by Our Lady to soothe the dreadful sorrow of her mother with words of faith. And so all three entered the inner rooms, where a dreadful scene was being enacted.
+When she heard the name of the Countess, which was well known to her as that of a promoter of the Heart of Jesus, thinking that the two ladies had come for the purpose of finding associates to the Confraternity of the Sacred Heart, she invited them to enter, as it seemed to her that they had been sent by Our Lady to soothe the dreadful sorrow of her mother with words of faith. And so all three entered the inner rooms, where a dreadful scene was being enacted.
 
 A young lady of twenty two years, who was in a delicate condition, black in the face and emitting the dread gurgling sound, forerunner of death, having lost consciousness and speech, was writhing in the most horrible contorsions, distending and then rolling herself up in such a manner as to leave no hope either for herself or the child she was bearing.
 
-The young lady’ s name was Concetta Vastarella, daughter of Giovanni and of Madam Louise Vastarella, née Passaro, and she was married to Signor Vincenzo Miccio. She had been quite despaired of by the doctors, among whom were the distinguished Chevalier Novi, and illustrious Professor Cantani.
+The young lady’s name was Concetta Vastarella, daughter of Giovanni and of Madam Louise Vastarella, née Passaro, and she was married to Signor Vincenzo Miccio. She had been quite despaired of by the doctors, among whom were the distinguished Chevalier Novi, and illustrious Professor Cantani.
 
 Her parents, her husband and all the family had vowed themselves to God and the Blessed Virgin with many prayers and promises to obtain her recovery.
 
@@ -1614,7 +1614,7 @@ As soon as the poor lady saw the Countess and her companion, she exclaimed weepi
 
 The Countess then gently told her that she venerated both of those sacred Devotions as most miraculous, but that she had not come for that, but for a new church to the Virgin of the Rosary to be built in Valle di Pompei.
 
-And briefly stating all the extraordinary events that had transpired up to that day, beholding the desolation of that family, seeing the tears of the friends and of the mother, Madam Louise Passaro, beside herself with grief, and considering on the other hand by what a strange concatenation of circumstances she came to be in that house, where she had never been known nor knew anybody, and where she was not even intending to come that morning, having first devised to go to a certain house in Chiaja; on the impulse of the ‘moment, without even looking at the patient, and with great faith, she uttered before all present these words:
+And briefly stating all the extraordinary events that had transpired up to that day, beholding the desolation of that family, seeing the tears of the friends and of the mother, Madam Louise Passaro, beside herself with grief, and considering on the other hand by what a strange concatenation of circumstances she came to be in that house, where she had never been known nor knew anybody, and where she was not even intending to come that morning, having first devised to go to a certain house in Chiaja; on the impulse of the moment, without even looking at the patient, and with great faith, she uttered before all present these words:
 
 — I promise that the Virgin of the Rosary, for whose church I am tramping around, and for whom I now find myself in this house, will grant you your request, as she already has done to two other families. —
 
@@ -1638,9 +1638,9 @@ Then all went to see the patient.
 
 She was in a bath, her lips black, her teeth clenched, her eyes staring, her body writhing in horrible contorsions, an ice-bag on her head, completely deprived of consciousness or feeling.
 
-The Countess and Miss Freda left the house in sorrow. The Countess returned home greatly agitated and strongly impressed by her recent experience. She hastened to relate to all the members of her family the strange thing which had occurred that morning; how instead of going to Chiaja as she had intended she had gone to Capodimonte, how she had mistaken the dwelling of the Miccio family for that of Madam Vastarella; how she had found herself in a house of tears and had seen with her own eyes a young mother in a pitiful condition, and how she had allowed a promise to escape her lips, sure that the Virgin wonld perform a miracle for the love of her new church of Pompei. The doubt, the hope, the fear of an uncertain result, communicated themselves to the spirits of all of us. How were we to know whether the Virgin would really look with an eye of favor on the strong presumption and over confidence of the Countess in promising a miracle in her name?
+The Countess and Miss Freda left the house in sorrow. The Countess returned home greatly agitated and strongly impressed by her recent experience. She hastened to relate to all the members of her family the strange thing which had occurred that morning; how instead of going to Chiaja as she had intended she had gone to Capodimonte, how she had mistaken the dwelling of the Miccio family for that of Madam Vastarella; how she had found herself in a house of tears and had seen with her own eyes a young mother in a pitiful condition, and how she had allowed a promise to escape her lips, sure that the Virgin would perform a miracle for the love of her new church of Pompei. The doubt, the hope, the fear of an uncertain result, communicated themselves to the spirits of all of us. How were we to know whether the Virgin would really look with an eye of favor on the strong presumption and over confidence of the Countess in promising a miracle in her name?
 
-— Madam Miccio’ s malady —we reasoned — is one that does its work quickly. The Countess left her in a most desperate state; hence the day will not pass without either her death or a miracle taking place. —
+— Madam Miccio’s malady —we reasoned — is one that does its work quickly. The Countess left her in a most desperate state; hence the day will not pass without either her death or a miracle taking place. —
 
 — What a grand thing it would be for the work of Pompei, if this other miracle were to take place here in Naples!...
 
@@ -1676,7 +1676,7 @@ The Virgin of the Rosary, who so early wished to give clear proof in Naples of h
 
 A short while after Signor Giovanni Vastarella came himself in person to felicitate us on the happy result; and the Countess returned to visit that family restored to happiness, and now devoted to the work of the Temple which was to be built in Pompei. And at the same time, before the lenten season was over, the same Signor Vastarella had the miracle announced in the parochial church of Monte Santo, and full of gratitude as he was, he offered me his services for the work of the church, asking me to call on him for any and every thing in which he could be of use. Together with his family and his newly resuscitated daughter he followed me to my dear little church of the Rosary at Porta Medina, and at the same Altar where I had declared myself son of the Third Order of the Rosary, they all took upon themselves the same habit, and so we became doubly brothers.
 
-Thus the merciful Queen of the heavenly roses sweetened the first trials and.tribulations of her servants with the ineffable comforts of her miracles.
+Thus the merciful Queen of the heavenly roses sweetened the first trials and tribulations of her servants with the ineffable comforts of her miracles.
 
 And to day after a lapse of fourteen years since that event, we have seen the whole Miccio and Vastarella families, comprising the Signora Concetta, who yet remembers with a feeling of the most lively gratitude, how she was restored to life and health by the Virgin of Pompei, return to the feet of this miraculous Queen, here in the Valley of hor predilection.
 
@@ -1858,7 +1858,7 @@ To-day, whosoever enters the Sanctuary of Pompei, and looks to the left where th
 
 ON THE EIGHTH DAY OP MAY MDCCCLXXVI BY JOSEPH FORMISANO BISHOP OF NOLA,
 
-IN THE PRESENCE OF THE FOUNDERS BARTOLO LONGO ESQ. AND WIFE, COUNTESS MARIANNA DE FUSCO AND A COTERIE OF CITIZENS AND PATRICIANS OF NAPLES THE CORNER STONE OF THE SANCTUARY WAS HERE LAID FOR TnE USE OF POOR PEASANTS,
+IN THE PRESENCE OF THE FOUNDERS BARTOLO LONGO ESQ. AND WIFE, COUNTESS MARIANNA DE FUSCO AND A COTERIE OF CITIZENS AND PATRICIANS OF NAPLES THE CORNER STONE OF THE SANCTUARY WAS HERE LAID FOR THE USE OF POOR PEASANTS,
 
 WHICH CEASELESS FAYORS AND MIRACLES HAVE MADE TO REACH ITS PRESENT SPLENDOR.
 
